@@ -1,6 +1,7 @@
 # THE_PC_Config - Mid-High attemped lowest cost Rig 2026 (Canada)
 
 **Total**: ~$2.5k CAD (before tax/shipping)
+
 Comments:
 Aint no way RAM is more expensive than the cpu 💀
 
