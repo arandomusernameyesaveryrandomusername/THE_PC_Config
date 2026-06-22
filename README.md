@@ -1,4 +1,4 @@
-# THE_PC_Config - Budget ML Rig 2026 (Canada)
+# THE_PC_Config - Mid-High attemped lowest cost Rig 2026 (Canada)
 
 **Total**: ~$2,385 CAD (before tax/shipping)
 
