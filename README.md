@@ -1,6 +1,6 @@
-# THE_PC_Config
+# THE_PC_Config - Budget ML Rig 2026 (Canada)
 
-The list changes every few to reflect the new list very aha CAD
+**Total**: ~$2,385 CAD (before tax/shipping)
 
 very good pc configa ha yes:
 
