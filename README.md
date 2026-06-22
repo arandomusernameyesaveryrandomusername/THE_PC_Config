@@ -1,4 +1,7 @@
 # THE_PC_Config
+
+The list changes every few to reflect the new list very aha CAD
+
 very good pc configa ha yes:
 
 
