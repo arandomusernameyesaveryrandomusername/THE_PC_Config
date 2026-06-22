@@ -1,2 +1,2 @@
 # THE_PC_Config
-very goo dpc configa ha yes
+very good pc configa ha yes
